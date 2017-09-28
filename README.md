@@ -1,0 +1,2 @@
+# blukblukfansub
+manga okuma şeysi
